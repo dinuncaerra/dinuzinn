@@ -1,2 +1,4 @@
 # dinuzinn
-dinu o melhor
+aprender girias
+
+Nome completo: Giovanne de Santana Pereira
